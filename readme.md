@@ -1,0 +1,1 @@
+I am a student at Taita Taveta National Polytechnic year one semester two.Am doing Diploma in Information Technology.
